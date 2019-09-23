@@ -1,2 +1,3 @@
 Mykola Nikulitsa.
 Contact information: koliah.gonzo@gmail.com; https://github.com/mykolanikulitsa; https://www.facebook.com/kolia.nikulitsa.
+Im 25 years old. Ive got ma first job at 18years old. Since that time Ive changed several branches such as construction, logistics, service sector. Ive graduated Construction university in Kyiv 3 years ago. Now when Im 25 start to think about my future. What can I make interesting and demand? What should I learn because now in the world everything happens faster. So I decide to try to become web-developer. Will see whats gonna happen.
